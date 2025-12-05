@@ -1,1 +1,0 @@
-# mirastagibaev-star.github.io
